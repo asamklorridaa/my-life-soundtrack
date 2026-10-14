@@ -1,8 +1,10 @@
 # My Life Soundtrack 🎧
 Playlist yang gua banget, wkwkwk!
 
-## Daftar Lagu Utama
+## High Energy & Motivation
+1. **Barasuara - Pikiran dan Perjalanan**
+2. **Efek Rumah Kaca - Balerina**
+
+## Reflection & Chill
 1. **rumahsakit - Panasea**
-2. **Barasuara - Pikiran dan Perjalanan**
-3. **Efek Rumah Kaca - Balerina**
-4. **Alkateri - Egosentris**
+2. **Alkateri - Egosentris**
